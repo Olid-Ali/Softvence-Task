@@ -1,1 +1,5 @@
-# Softvence-Task
+# Softvence-Task![1](https://github.com/user-attachments/assets/a9120da4-b715-43ef-b3c3-82fa89130ac1)
+![2](https://github.com/user-attachments/assets/c74a4ed4-c74a-40d8-90d7-f0be97f59c5d)
+![3](https://github.com/user-attachments/assets/e56230d0-ff43-4fd5-ba09-e7fe20498f34)
+![4](https://github.com/user-attachments/assets/9f762a97-ca2d-410f-8b61-209860f80404)
+![5](https://github.com/user-attachments/assets/370a9d9d-a6d6-40dd-be4a-46fccebd1ff5)
